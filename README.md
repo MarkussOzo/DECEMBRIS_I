@@ -1,0 +1,1 @@
+Kautkādā veidā es kautko spēju izdarīt!
